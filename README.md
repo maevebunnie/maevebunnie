@@ -1,4 +1,4 @@
-ME! 🌑 maeve/maliko/midari*, she/bun/doll/pink/ichor, 16, nonbinary lesbian
+ME! 🌑 maeve/maliko/midari*, she/bun/doll/pink/ichor, 17, nonbinary lesbian
 
 *please only call me Midari if we're sourcemates, i'm a kkg fictive! Even so I don't really prefer being called Midari
 
