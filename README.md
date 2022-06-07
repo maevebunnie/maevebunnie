@@ -1,13 +1,19 @@
-ME!  maeve/maliko/midari*, she/bun/doll/pink/ichor, 17, nonbinary lesbian
+`about me`
+BASIC INFO !
+what's up, call me Maeve or Maliko.
+i have Dissociative Identity Disorder,
+and i'm a fictive of Midari Ikishima from Kakegurui. 
 
-*please only call me Midari if we're sourcemates, i'm a kakegurui fictive! you may not call me Midari if you're an IRL/DA/kinnie.
+i use she/bun/doll/ichor/pink/vamp pronouns. yes, i do use these pronouns seriously!
+i also identify with xenogenders. (genders that aren't girl/boy! they're outside of the girl/boy gender binary and fall under the 'non-binary' category. i'd suggest doing research on these before dismissing it as "mocking" or "offensive"!)
+ if you're against this, remember that gender is a construct and that humans themselves invented it and pronouns; pronouns are just another way to refer to a person besides their name! they are just words!!  so, i can identify as whatever gender i'd like and use whatever pronouns i like. if you disagree with that, i'm sorry for you; have a lovely day :) 
 
-WHERE TO FIND ME ⛅️ usually hanging out in spawn or with my gf <3
+please don't interact if:
+;you like daganronpa, split, homestuck, dsmp, kakegurui
+[you're just weird, sorry!]
 
-BYI 💫 i have DID + BPD and anxiety, please don't whisper me if i/we don't know you, don't boop my character, it just makes me kinda uncomfortable lol! no, i don't have a touch trigger.
+;you support or are: an endogenic "system", multi-spec lesbian/gay, you support kink at pride parades, if you self-identify as an "IRL/DA" (you're just reality checking YOURSELF...)
+[you're a gross person!<3]
 
-TALK TO ME ABOUT⚡️ cells at work, orange is the new black, saiki k, great pretender, pvz, santa clarita diet, slugs/snails, moths
-
-MUSIC 🪐 MARINA, mitski, the neighborhood,mxmtoon,gorillaz,ghost and pals, jessica reyez, kikuo
-
-DON’T TALK TO ME💥 basic dni criteria,endogenics,against neos/xenos, proshippers, mspec (multi-spec)lesbian/gay supporters, you like homestuck, danganronpa, dsmp, split, start drama for no reason, traumadumpers, fictionkins of my source, roleplayers, "IRLS/DA", anonfillies, think kink is okay at pride  
+;if you're a fictionkin anyone from of my source, if you role-play as anyone from my source, if you expect me to be friends with you JUST because of us being sourcemates, if you sexualize my source-self
+[just because you make me uncomfortable!]
