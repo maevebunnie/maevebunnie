@@ -12,7 +12,7 @@ please don't interact if:
 ;you like daganronpa, split, homestuck, dsmp, kakegurui
 [you're just weird, sorry!]
 
-;you support or are: an endogenic "system", multi-spec lesbian/gay, you support kink at pride parades, if you self-identify as an "IRL/DA" (you're just reality checking YOURSELF...)
+;you support or are: an endogenic "system", multi-spec lesbian/gay, you support kink at pride parades
 [you're a gross person!<3]
 
 ;if you're a fictionkin anyone from of my source, if you role-play as anyone from my source, if you expect me to be friends with you JUST because of us being sourcemates, if you sexualize my source-self
